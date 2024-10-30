@@ -5,6 +5,7 @@
 <p align="center">WHAT DO I PLACE HERE?</p>
 
 <p align="center">🌊↬Please don't try to befriend me if you're an adult...✦</p>
-<p align="center">🌊↬And also please don't vent to me. (Unless we're friends)....✦</p>
+<p align="center">🌊↬And also please don't vent to me.</p>
+<p align="center">(Unless we're friends or I've offered to hear you)....✦</p>
 <p align="center">🌊↬Otherwise: I'll be happy to speak to you. I adore people sm,</p>
 <p align="center">I don't tend to judge anyone, but I'm awfully socially awkward.✦</p>
