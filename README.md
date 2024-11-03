@@ -12,8 +12,12 @@
 <p align="center">(Unless we're friends or I've offered to hear you)✧</p>
 <p align="center">✦↬Otherwise: I'll be happy to speak to you. I adore people sm,</p>
 <p align="center">I don't tend to judge anyone, but I'm awfully socially awkward.✧</p>
+<p align="center">✦↬I also tend to use lyrics as my username, please don't</p>
+<p align="center">↬freak out if my username is something like "HAVEN SENT ME"✧</p>
 <p align="center">˚｡✧｡˚</p>
 <p align="center">𓋒 Interests 𓋒</p>
+<p align="center">↬Baking✧</p>
+<p align="center">↬The occult✧</p>
 <p align="center">↬Cookie run✧</p>
 <p align="center">↬Zoology✧</p>
 <p align="center">↬DAMN, IDK, I'M BAD AT THIS.</p>
