@@ -25,5 +25,15 @@
 <p align="center">✧──Hobbies────────────┐</p>
 <p align="center">↬Baking✧</p>
 <p align="center">↬Zoology✧</p>
-<p align="center">↬Blanky✧</p>
-<p align="center">↬DAMN, IDK, I'M BAD AT THIS.</p>
+<p align="center">↬Blank✧</p>
+<p align="center">↬I need more.</p>
+<p align="center">✧────────────────────</p>
+<p align="center">✧──Music────────────┐</p>
+<p align="center">↬Will Wood✧</p>
+<p align="center">↬Heaven Pierce Her✧</p>
+<p align="center">↬Radiohead✧</p>
+<p align="center">↬The Doors✧</p>
+<p align="center">↬I LOVE PIANO, PLEASE</p>
+<p align="center">RECOMMEND ME SONGS WITH</p>
+<p align="center">PIANO✧</p>
+<p align="center">✧────────────────────</p>
