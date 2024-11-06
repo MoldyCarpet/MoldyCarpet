@@ -5,7 +5,7 @@
 <p align="center">WHAT DO I PLACE HERE?</p>
 
 <p align="center">｡˚✧˚｡</p>
-<p align="center">✦↬Please don't try to befriend me if you're an adult✧</p>
+<p align="center">✦↬Please don't try to befriend me if you're an adult or under 14✧</p>
 <p align="center">✦↬I don't feel comfortable sharing my social media</p>
 <p align="center">✦or personal info right away.✧</p>
 <p align="center">✦↬And also please don't vent to me.</p>
@@ -33,7 +33,7 @@
 <p align="center">↬Heaven Pierce Her✧</p>
 <p align="center">↬Radiohead✧</p>
 <p align="center">↬The Doors✧</p>
-<p align="center">↬I LOVE PIANO, PLEASE</p>
+<p align="center">↬Ghost✧</p>
 <p align="center">RECOMMEND ME SONGS WITH</p>
 <p align="center">PIANO✧</p>
 <p align="center">✧────────────────────</p>
