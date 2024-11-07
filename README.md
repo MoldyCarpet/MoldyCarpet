@@ -20,7 +20,7 @@
 <p align="center">↬Cookie Run✧</p>
 <p align="center">↬Smile For Me✧</p>
 <p align="center">↬Arcane✧</p>
-<p align="center">↬Pokémon✧</p>
+<p align="center">↬YJ✧</p>
 <p align="center">✧────────────────────</p>
 <p align="center">✧──Hobbies────────────┐</p>
 <p align="center">↬Baking and cooking✧</p>
