@@ -32,10 +32,11 @@
 <p align="center">↬Will Wood✧</p>
 <p align="center">↬Heaven Pierce Her✧</p>
 <p align="center">↬Radiohead✧</p>
-<p align="center">↬The Doors✧</p>
+<p align="center">↬RATM✧</p>
 <p align="center">↬Ghost✧</p>
-<p align="center">RECOMMEND ME SONGS WITH</p>
-<p align="center">PIANO✧</p>
+<p align="center">↬An awful lot more.✧</p>
+<p align="center">PLEASE RECOMMEND ME SONGS</p>
+<p align="center">WITH PIANO, I LOVE THEM✧</p>
 <p align="center">✧────────────────────</p>
 
 I'm awfully anxious, sorry if I ever freeze mid conversation, or take a long time to answer something.
