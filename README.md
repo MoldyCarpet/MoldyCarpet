@@ -37,3 +37,5 @@
 <p align="center">RECOMMEND ME SONGS WITH</p>
 <p align="center">PIANO✧</p>
 <p align="center">✧────────────────────</p>
+
+I'm awfully anxious, sorry if I ever freeze mid conversation, or take a long time to answer something.
