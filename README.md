@@ -39,4 +39,6 @@
 <p align="center">WITH PIANO, I LOVE THEM✧</p>
 <p align="center">✧────────────────────</p>
 
-I'm awfully anxious, sorry if I ever freeze mid conversation, or take a long time to answer something.
+<p align="center">>Some silly extra notes:</p>
+<p align="center">>I'm awfully anxious, sorry if I ever freeze mid conversation, or take a long time to answer something.</p>
+<p align="center">>Please don't be intimidated by me, chances are that I'm more frightened of you.</p>
