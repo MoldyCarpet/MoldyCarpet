@@ -42,4 +42,4 @@
 <p align="center">>Some silly extra notes:</p>
 <p align="center">>I'm awfully anxious, sorry if I ever freeze mid conversation, or take a long time to answer something.</p>
 <p align="center">>Please don't be intimidated by me, chances are that I'm more frightened of you.</p>
-<p align="center">THANK YOU SO SO SO SO SO MUCH FOR READING ALL OF THAT, MWAH /p</p>
+<p align="center">THANK YOU SO SO SO SO SO MUCH FOR READING ALL OF THAT, PATPAT /p</p>
