@@ -19,6 +19,7 @@
 <p align="center">✧──Fandoms────────────┐</p>
 <p align="center">↬Cookie Run✧</p>
 <p align="center">↬Smile For Me✧</p>
+<p align="center">↬(Unproud) LOL player✧</p>
 <p align="center">↬Arcane✧</p>
 <p align="center">↬YJ✧</p>
 <p align="center">✧────────────────────</p>
