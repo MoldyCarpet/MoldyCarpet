@@ -6,6 +6,8 @@
 
 <p align="center">｡˚✧˚｡</p>
 <p align="center">✦↬Dni= basic dni criteria✧</p>
+<p align="center">✦↬I don't usually do C+H, please ask me before "cuddling" me.✧</p>
+<p align="center">✦↬I DON'T DO E-DATING AND SPECIALLY NOT IN A PONY GAME✧</p>
 <p align="center">✦↬I don't feel comfortable sharing my social media</p>
 <p align="center">✦or personal info right away.✧</p>
 <p align="center">✦↬And also please don't vent to me.</p>
