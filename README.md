@@ -2,22 +2,19 @@
   <img width="460" height="300" src="https://github.com/user-attachments/assets/b20933a2-c099-4e08-8e8f-19e10025d9d4">
 </p>
 <p align="center">˚｡✧ ︶ ꒷ ꒷ ꒦︶ ꒷ ꒦ ︶𓋒︶ ꒷ ꒦ ︶ ︶ ꒷ ꒦ ✦｡˚</p>
-<p align="center">I yap a lot here, if you don't want to read all of that: my carrd is a wee bit more brief.. or at least initially. I add a lot more about my person there than here, to be honest.</p>
+<p align="center">Work in progress</p>
 
 <p align="center">｡˚✧˚｡</p>
-<p align="center">✦↬Dni= basic dni criteria✧</p>
-<p align="center">✦↬I don't usually do C+H, please ask me before "cuddling" me.✧</p>
-<p align="center">✦↬I DON'T DO E-DATING AND SPECIALLY NOT IN A PONY GAME✧</p>
-<p align="center">✦↬I don't feel comfortable sharing my social media</p>
-<p align="center">✦or personal info right away.✧</p>
-<p align="center">✦↬And also please don't vent to me.</p>
-<p align="center">(Unless we're friends or I've offered to hear you)✧</p>
-<p align="center">✦↬I won't befriend anyone under 14 and above 18,</p>
-<p align="center">✦But feel free to interact with me.</p>
-<p align="center">✦↬I tend to be focused on other things besisdes the game,</p>
-<p align="center">✦↬And I won't notice messages unless they're whispers.</p>
+<p align="center">✦↬Hey, hey, hey! You probably come from pt.✧</p>
+<p align="center">↬I know that people don't really like to read,✧</p>
+<p align="center">↬So I'll try to be as brief as possible.✧</p>
+
+<p align="center">✦↬I don't feel comfortable sharing personal info✧</p
+<p align="center">✦↬but you can call me Eel. I'm✧</p>>
+
 <p align="center">✦↬I'm a very musical guy, please don't freak out if my</p>
-<p align="center">↬username is something like "HAVEN SENT ME" or "READ MY WRITING ON THE WALL!"✧</p>
+<p align="center">↬pony name is something like "HEAVEN SENT ME"✧</p>
+<p align="center">✦↬Dni= basic dni criteria, alt people fetishizers,✧</p>
 <p align="center">˚｡✧｡˚</p>
 <p align="center">┏━𓋒━━━━━━━━Interests━━━━━━━━━━━━━━━━✦</p>
 <p align="center">✧──Fandoms────────────┐</p>
@@ -45,7 +42,6 @@
 <p align="center">WITH PIANO, I LOVE THEM✧</p>
 <p align="center">✧────────────────────</p>
 <p align="center">✧──Other───────────────┐</p>
-<p align="center">↬Heavily into sea life.✧</p>
 <p align="center">↬I LOVE neurology✧</p>
 <p align="center">↬I LOVE emotions✧</p>
 <p align="center">↬I love everything :]✧</p>
