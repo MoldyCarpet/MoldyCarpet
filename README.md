@@ -2,7 +2,7 @@
   <img width="460" height="300" src="https://github.com/user-attachments/assets/b20933a2-c099-4e08-8e8f-19e10025d9d4">
 </p>
 <p align="center">˚｡✧ ︶ ꒷ ꒷ ꒦︶ ꒷ ꒦ ︶𓋒︶ ꒷ ꒦ ︶ ︶ ꒷ ꒦ ✦｡˚</p>
-<p align="center">Work in progress</p>
+<p align="center">Work in progress - Apparently I got my skins copied by some girl named Mel?? Uhh, yeah, no, I'm not her. I don't want to have anything to do with her.</p>
 <p align="center">✦Eel✧6een✧He/Him✦</p>
 <p align="center">✧Esp｡Eng✧</p>
 <p align="center">｡˚✧˚｡</p>
