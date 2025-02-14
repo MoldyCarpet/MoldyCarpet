@@ -2,9 +2,10 @@
   <img width="460" height="300" src="https://github.com/user-attachments/assets/b20933a2-c099-4e08-8e8f-19e10025d9d4">
 </p>
 <p align="center">˚｡✧ ︶ ꒷ ꒷ ꒦︶ ꒷ ꒦ ︶𓋒︶ ꒷ ꒦ ︶ ︶ ꒷ ꒦ ✦｡˚</p>
-<p align="center">Work in progress - Apparently I got my skins copied by some girl named Mel?? Uhh, yeah, no, I'm not her. I don't want to have anything to do with her. If you see anyone with my skins but without my GitHub attatched please don't harass them.</p>
-<p align="center">✦Eel✧6een✧He/Him✦</p>
+<p align="center">Work in progress - Apparently I got my skins copied by some girl named Mel?? Uhh, yeah, no, I'm not her. I don't want to have anything to do with her. If you see anyone with my skins but without my GitHub attatched please don't harass them and just block them. I don't want anyone being harassed for a pony game, yk?</p>
+<p align="center">✦Eel✧He/Him✦</p>
 <p align="center">✧Esp｡Eng✧</p>
+<p align="center">✧SemiAFK or offtab most of the time. W2I</p>
 <p align="center">｡˚✧˚｡</p>
 <p align="center">Hi, there. This is just meant to include my dni list and some extra info. Feel free to interact (unless that you're on my dni list) and we probably won't become friends because I like to keep my close social circle small, but we surely can become acquaintances or something.
 <p align="center">｡˚I don't want to have anything to do with you if you...˚｡</p>
