@@ -9,7 +9,7 @@
 <p align="center">｡˚✧˚｡</p>
 <p align="center">Hi, there. This is just meant to include my dni list and some extra info. Feel free to interact (unless that you're on my dni list) and we probably won't become friends because I like to keep my close social circle small, but we surely can become acquaintances or something.
 <p align="center">｡˚I don't want to have anything to do with you if you...˚｡</p>
-<p align="center">Fit in basic DNI criteria, Engage in bullying, Fetishize alt cultures, Ship Finn x Fern, Backshot ppl, </p>
+<p align="center">Fit in basic DNI criteria, Engage in bullying, Fetishize alt cultures, Ship Finn x Fern, Backshot random people, Are under the age of 15</p>
 <p align="center"></p> 
 <p align="center">˚｡✧｡˚</p>
 <p align="center">┏━𓋒━━━━━━━━Interests━━━━━━━━━━━━━━━━✦</p>
@@ -35,7 +35,7 @@
 <p align="center"></p>
 <p align="center">✧────────────────────</p>
 <p align="center">✧──Other───────────────┐</p>
-<p align="center">↬✧</p>
+<p align="center">↬I really like apples...✧</p>
 <p align="center">↬✧</p>
 <p align="center">↬✧</p>
 <p align="center">✧──────────────────────</p>
